@@ -1,5 +1,5 @@
 # skills
-INTJ | Strategic Thinker | Problem Solver | Innovative Mindset
+Strategic Thinker | Problem Solver | Innovative Mindset
 # 👋 Hello there, I'm Yousef Navaei!
 
 ## About Me
