@@ -1,6 +1,6 @@
 # skills
 Strategic Thinker | Problem Solver | Innovative Mindset
-# 👋 Hello there, I'm Yousef Navaei!
+# 👋 Hello there, I'm Józef!
 
 ## About Me
 
